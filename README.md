@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @abdullahsalma
-- 👀 I’m interested in coding for chairties.
+- 👀 I’m like building stuffs.
 - 🌱 I’m currently flying over the skies.
 - 💞️ I’m looking working on mega projects.
 - 📫 Reach me, on X @abdullahsalma, or telegram @IamAbdullah.
