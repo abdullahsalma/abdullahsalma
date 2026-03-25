@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @abdullahsalma
 - 👀 I’m like building stuffs.
 - 🌱 I’m currently flying over the skies.
-- 💞️ I’m looking working on mega projects.
+- 💞️ I’m currently working on mega projects.
 - 📫 Reach me, on X @abdullahsalma, or telegram @IamAbdullah.
 
 <!---
